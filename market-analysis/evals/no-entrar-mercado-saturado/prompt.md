@@ -1,0 +1,1 @@
+Soy un inversor particular con 2 M€ y quiero montar una cadena de gimnasios boutique en Madrid y Barcelona. Hazme un estudio del mercado de fitness en España y dime si tiene sentido entrar ahora. Markdown vale.
